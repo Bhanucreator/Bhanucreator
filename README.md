@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋Hi I'm @Bhanu kiran R<br> 🚀I am passionate about learning new technologies and exploring innovative ideas. I thrive on challenging myself with new projects, continuously expanding my skill set, and contributing to exciting ventures<br>🧑‍🎓I’m a Second Year Engineering student, pursuing in CBIT kolar<br>🔗How to reach me via :bhanukiran90216@gmail.com<br>
+👋Hi I'm @Bhanu kiran R<br> 🚀I am passionate about learning new technologies and exploring innovative ideas. I thrive on challenging myself with new projects, continuously expanding my skill set, and contributing to exciting ventures<br>🧑‍🎓I’m a Third Year Engineering student, pursuing in CBIT kolar<br>🔗How to reach me via :bhanukiran90216@gmail.com<br>
 
 
 ## 🌐 Socials:
